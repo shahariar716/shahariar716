@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Python and building a strong foundation one step at a time.**
 
-- 📫 How to reach me **stoictanif19@gmail.com**
+- 📫 How to reach me **satanif1996@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
